@@ -1,1 +1,0 @@
-# adamthorlin.github.io
